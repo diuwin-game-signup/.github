@@ -9,13 +9,13 @@
 
 If you haven’t signed up yet, now’s the perfect time to join!
 
-<a href="http://www.sikkim222.com/#/register?invitationCode=316164149930" rel="nofollow">👉Register on Diuwin Game</a>
+<a href="https://www.sikkim11.com/#/register?invitationCode=316164149930" rel="nofollow">👉Register on Diuwin Game</a>
 
-<a href="http://www.sikkim222.com/#/register?invitationCode=316164149930" rel="nofollow">👉Register on Diuwin Game</a>
+<a href="https://www.sikkim11.com/#/register?invitationCode=316164149930" rel="nofollow">👉Register on Diuwin Game</a>
 
-<a href="http://www.sikkim222.com/#/register?invitationCode=316164149930" rel="nofollow">👉Register on Diuwin Game</a>
+<a href="https://www.sikkim11.com/#/register?invitationCode=316164149930" rel="nofollow">👉Register on Diuwin Game</a>
 
-<a href="http://www.sikkim222.com/#/register?invitationCode=316164149930" rel="nofollow">👉Register on Diuwin Game</a>
+<a href="https://www.sikkim11.com/#/register?invitationCode=316164149930" rel="nofollow">👉Register on Diuwin Game</a>
 
 
 ## Register on Diuwin Game
@@ -29,7 +29,7 @@ Diuwin Games is an engaging online platform offering a diverse range of games th
 
 | Platform Name | Diu Win App |
 |---------------|-------------|
-| **Diuwin Invite Code** | ***** |
+| **Diuwin Invite Code** | 316164149930 |
 
 ### How do I log in to my Diuwin Games account?
 1. Visit the official Diuwin Games website.
