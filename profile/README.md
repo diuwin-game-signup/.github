@@ -9,13 +9,14 @@
 
 If you haven’t signed up yet, now’s the perfect time to join!
 
-<a href="https://lakhimpurkheri.com/" rel="nofollow">👉 Register on Diuwin Game</a>
+<a href="http://www.sikkim222.com/#/register?invitationCode=316164149930" rel="nofollow">👉Register on Diuwin Game</a>
 
-<a href="https://lakhimpurkheri.com/" rel="nofollow">👉 Register on Diuwin Game</a>
+<a href="http://www.sikkim222.com/#/register?invitationCode=316164149930" rel="nofollow">👉Register on Diuwin Game</a>
 
-<a href="https://lakhimpurkheri.com/" rel="nofollow">👉 Register on Diuwin Game</a>
+<a href="http://www.sikkim222.com/#/register?invitationCode=316164149930" rel="nofollow">👉Register on Diuwin Game</a>
 
-<a href="https://lakhimpurkheri.com/" rel="nofollow">👉 Register on Diuwin Game</a>
+<a href="http://www.sikkim222.com/#/register?invitationCode=316164149930" rel="nofollow">👉Register on Diuwin Game</a>
+
 
 ## Register on Diuwin Game
 ## Login on Diuwin Game
